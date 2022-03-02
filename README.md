@@ -1,2 +1,0 @@
-# Mucery-Hub
-bestscriptforyouamgodthebestxenonloseramgodsemiprokajokkuydum
